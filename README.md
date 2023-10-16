@@ -5,4 +5,4 @@
    Além disso, é importante que as políticas e legislações sejam implementadas para responsabilizar os agressores e criar ambientes seguros. O treinamento de professores, a promoção de programas de apoio psicológico e a implementação de códigos de conduta contra o bullying são medidas essenciais. 
   A responsabilidade de combater o bullying é coletiva. Todos devemos estar dispostos a intervir quando presenciamos o bullying e oferecer apoio às vítimas. O respeito pelas diferenças e a promoção de ambientes inclusivos são passos fundamentais para superar esse desafio.
   Em resumo, o bullying é um problema sério que afeta não apenas indivíduos, mas também comunidades inteiras. É hora de enfrentar esse desafio de frente, promovendo uma cultura de empatia, respeito e tolerância. Somente assim poderemos criar um mundo onde todos possam viver sem o medo e a dor causados pelo bullying.
-  ![](https://hermes.dio.me/articles/cover/425af48b-6e63-430d-9e17-50d3bf6ce684.jpg)
+  ![](https://static.todamateria.com.br/upload/bu/ll/bullying-og.jpg?class=ogImageWide)
